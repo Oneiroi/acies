@@ -1,0 +1,1 @@
+acies : keenness, edge, sharpness, battle-line, battlefield. 
